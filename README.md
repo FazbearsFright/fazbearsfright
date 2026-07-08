@@ -4,7 +4,7 @@
 <p align="center"> I idle often and rarely speak unless spoken to. I promise I'm nice, though I am quite awkward, and can be blunt sometimes.</p>
 <p align="center"> Don't be afraid to interact with me, I enjoy talking to new people <i>(I'm just very shy + anxious, sometimes I may be dull cuz I'm tired!)</i>. </p>
 <p align="center"> https://dizzykat.straw.page • https://starsontheshore.neocities.org • https://rookieplush.atabook.org </p>
-<p align="center"> Minors please DNI on ponytown. I am almost always on the 18+ server. If you want to contact me on a different site, or I'm on safe server, that's fine! </p>
+<p align="center"> Minors please DNI on ponytown. I am almost always on the 18+ server. <br> If you want to contact me on a different site, or I'm on safe server, that's fine! </p>
 <p align="center"> <img width="600" src="https://64.media.tumblr.com/f0e725e1f06c7ee67514e0a789ead7ca/cb7d539e66f4e955-ae/s1280x1920/6f249e5c439b60f7f1c4b959e89ca41d74ed365f.gif"> </p>
 <p align="center"> If a pony doesn't have my github/<a href="https://www.patreon.com/DizzyKat">patreon</a> linked, it isn't me! I do not appreciate being copied or heavily referenced. </p>
 <p align="center"> Lately I've been by the cafe / sonic area </p>
