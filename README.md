@@ -22,3 +22,5 @@
 <p align="center">If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.</p>
 <p align="center">I do not harass people. If you bother me I'll likely just mute you, or hide if its severe.</p>
 
+<p align="center">Please do not copy my ponies / characters / or page.</p>
+
