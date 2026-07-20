@@ -22,5 +22,5 @@
 <p align="center">If I'm talking to someone, please don't immediately assume we're friends, we might just be chatting! If they are a bad person, just shoot me a whisper, thank you.</p>
 <p align="center">I do not harass people. If you bother me I'll likely just mute you, or hide if its severe.</p>
 
-<p align="center"><b>Please do not copy my ponies / characters / or page. I am so tired of this being an issue. Please stop. If you see someone else who is extremely similar to me, please know that I AM NOT OKAY WITH THIS.</b></p>
+<p align="center"><b>Please do not copy my ponies / characters / or page. Please stop. If you see someone else who is extremely similar to me, please know that I AM NOT OKAY WITH THIS.</b><br> If you are reading this, you know who you are. Please stop watching me.</p>
 
