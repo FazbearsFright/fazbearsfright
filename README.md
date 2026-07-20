@@ -11,7 +11,7 @@
 <p align="center"> I have memory loss, sorry if I forget anything important! </p>
 <p align="center"> If you're kin/fictive of one of my f/os, I'm not a weirdo I wont treat you like we're dating or anything like that I promise! </p>
 <p align="center"><sub>If you make 'weak' or 'thwomp' jokes, or are generally weird towards my Infinite pony I'm not going to entertain you, sorry.<br>I am also very nonsharing..</sub></p>
-<p align="center"> <img width="300" src="https://i.postimg.cc/ry7dYdnY/cara-ruby-divider-sth-padding.gif"> </p>
+<p align="center"> <img src="https://i.postimg.cc/ry7dYdnY/cara-ruby-divider-sth-padding.gif"> </p>
 
 
                                                               !! PLEASE READ !!
