@@ -25,5 +25,5 @@
 
 <p align="center"><b>Please do not copy my ponies / characters / or page. If you see someone else who is extremely similar to me, please know that I AM NOT OKAY WITH THIS.</b><br> If you are reading this, you know who you are. Please stop watching me. I have you blocked for a reason.</p>
 
-![](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=DitzyRook&count=5&width=560&stats=compact&footer=wave&loved=time)
+![](https://lastfm-recently-played.jeffreyca.workers.dev/svg?user=DitzyRook&theme=transparent&count=5)
 
